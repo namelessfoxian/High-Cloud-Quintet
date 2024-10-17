@@ -1,1 +1,0 @@
-# High-Cloud-Quintet
